@@ -1,8 +1,5 @@
-Salut ! C'est un texte magnifique, très puissant et inspirant. Il y a une vraie poésie organique là-dedans.
+## The Whisper that Makes the Walls Tremble
 
-Voici une traduction en anglais qui essaie de conserver ce souffle épique et cette douceur "implacable" :
-
-The Whisper that Makes the Walls Tremble
 Friends, Brothers, Sisters,
 
 Architects of the invisible,
@@ -13,21 +10,21 @@ But listen. Listen to the silence beneath the roar of the news.
 
 Something else is being born.
 
-Look at the bare stone: cold, sterile. There, right next to it, a tiny, fragile speck of color. Lichen. It owns nothing; it destroys nothing. It settles where no one else can live. It unites fungus and algae in an embrace so perfect they become one. And slowly, molecule by molecule, without a sound, without a weapon, it transforms rock into soil. It transforms the desert into a garden.
+Look at the bare stone: cold, sterile. There, right next to it, a tiny, fragile speck of color. **Lichen.** It owns nothing; it destroys nothing. It settles where no one else can live. It unites fungus and algae in an embrace so perfect they become one. And slowly, molecule by molecule, without a sound, without a weapon, it transforms rock into soil. It transforms the desert into a garden.
 
-We are this lichen.
+**We are this lichen.**
 
 We are not here to set the old world on fire. We are not here to shout louder than the chaos. We are here to digest it. We are here to transform it, from the inside, through the relentless force of gentleness.
 
 They told you that you were powerless. That is the greatest lie in history.
 
-Science tells us, history screams it to us: it only takes 3.5% of us. Three and a half percent of synchronized, vibrant, determined souls for the tipping point to occur. For the absurd to collapse and for common sense to reclaim its rights.
+Science tells us, history screams it to us: it only takes **3.5% of us**. Three and a half percent of synchronized, vibrant, determined souls for the tipping point to occur. For the absurd to collapse and for common sense to reclaim its rights.
 
-It is not a question of numbers; it is a question of resonance.
+It is not a question of numbers; it is a question of **resonance**.
 
-The coming revolution is not in the street; it is in your gaze. It is "software-based." It is an update of our humanity. It is the moment you decide to no longer be a parasite on this Earth, but to become a symbiont.
+The coming revolution is not in the street; it is in your gaze. It is "software-based." It is an update of our humanity. It is the moment you decide to no longer be a parasite on this Earth, but to become a **symbiont**.
 
-Imagine... Imagine for a moment this world that lies just behind the veil of our fears.
+**Imagine...** Imagine for a moment this world that lies just behind the veil of our fears.
 
 A world where technology no longer serves to isolate us, but to connect us as mycelium connects the forest.
 
@@ -43,7 +40,7 @@ It begins when you share a meal with the stranger on your landing.
 
 It begins when you plant a seed in an urban wasteland.
 
-It begins when you refuse hate to choose—obstinately, radically—cooperation.
+It begins when you refuse hate to choose—obstinately, radically—**cooperation**.
 
 Every act of kindness is a spore you cast into the wind. You may not see where it lands. But together, these millions of spores are changing the chemistry of the atmosphere. Just as cyanobacteria once gifted oxygen to the Earth, we are going to offer a new air to our society: the air of trust, the air of reciprocity.
 
@@ -55,7 +52,7 @@ So, stand tall.
 
 Do not ask permission to build the world of tomorrow.
 
-Be the architects of this resilience. Be the water that wakes the sleeping life.
+**Be the architects of this resilience.** Be the water that wakes the sleeping life.
 
 We are the network. We are the bond. We are life reclaiming its rights.
 
@@ -68,3 +65,9 @@ Let us move forward.
 Together.
 
 Now.
+
+---
+
+C'est un texte très fort sur la "théorie des 3.5%" (souvent citée dans les mouvements de résistance civile non-violente).
+
+Est-ce que tu aimerais que j'adapte le ton pour qu'il soit encore plus formel, ou peut-être plus "slam/poésie de rue" ?
