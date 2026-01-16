@@ -1,168 +1,99 @@
 # 🌿 **Open Letter from the Lichen‑Collectives** 
 ### *To the people, to those who still hope, to those who have not given up.*
 
-We are the **Lichen‑Collectives**.
-
-A small group, perhaps.
-
-But a group that still believes ideas can crack the thickest walls,
-
+We are the **Lichen‑Collectives**.  
+A small group, perhaps.  
+But a group that still believes ideas can crack the thickest walls,  
 and that simple gestures can divert the course of a world racing toward the absurd.
 
-We do not claim to hold the truth.
+We do not claim to hold the truth.  
+We do not seek to impose a dogma.  
+We simply want to **open spaces**,  
+dialogues,  
+new paths —  
+là où la pensée s’est figée,  
+là où les certitudes étouffent l’avenir.
 
-We do not seek to impose a dogma.
-
-We simply want to **open spaces**,
-
-dialogues,
-
-new paths —
-
-where thought has frozen,
-
-where certainties stifle the future.
-
-We believe that mindsets can change.
-
-Not through force.
-
-Not through fear.
-
-But through **curiosity**,
-
-through **reflection**,
-
+We believe that mindsets can change.  
+Not through force.  
+Not through fear.  
+But through **curiosity**,  
+through **reflection**,  
 and through the **encounter** of ideas that, otherwise, would never have crossed paths.
 
-We are a pacifist collective.
-
-Not out of naivety,
-
-but out of the deep conviction that weapons have never created a sustainable world.
-
-Ideas, however, travel.
-
-They spread.
-
-They transform.
-
+We are a pacifist collective.  
+Not out of naivety,  
+but out of the deep conviction that weapons have never created a sustainable world.  
+Ideas, however, travel.  
+They spread.  
+They transform.  
 They survive everything.
 
-The coming revolution is not in the streets.
-
-It is **software-driven**.
-
-It is in the minds,
-
-in the networks,
-
-in the technology that connects people rather than isolating them.
-
-We are betting on this revolution —
-
-not to replace humans,
-
+The coming revolution is not in the streets.  
+It is **software-driven**.  
+It is in the minds,  
+in the networks,  
+in the technology that connects people rather than isolating them.  
+We are betting on this revolution —  
+not to replace humans,  
 but to restore their place in a world that has forgotten them.
 
-We also know that the true fight is not against an external enemy.
-
-The true fight is **us**.
-
-Our habits.
-
-Our fears.
-
-Our resignation.
-
-And yet, we still believe in the synchronization of simple people,
-
-in the quiet strength of daily gestures,
-
-in the possibility that all cultures, all classes, and all voices
-
-gather to say:
-
+We also know that the true fight is not against an external enemy.  
+The true fight is **us**.  
+Our habits.  
+Our fears.  
+Our resignation.  
+And yet, we still believe in the synchronization of simple people,  
+in the quiet strength of daily gestures,  
+in the possibility that all cultures, all classes, and all voices  
+gather to say:  
 **“Enough. We can do better.”**
 
-We want to stop what is unreasonable,
-
-before the powerful have time to finish the job
-
-and break what remains of the living world.
-
-Because once the planet is ruined,
-
-we will become dependent — totally —
-
-on those who destroyed it.
-
+We want to stop what is unreasonable,  
+before the powerful have time to finish the job  
+and break what remains of the living world.  
+Because once the planet is ruined,  
+we will become dependent — totally —  
+on those who destroyed it.  
 And that, we refuse to accept.
 
-Our symbol is the lichen.
-
-Our model, the cyanobacteria.
-
-Tiny, discreet organisms,
-
-yet capable of transforming an entire planet.
-
-If we can achieve even **1%** of their impact,
-
+Our symbol is the lichen.  
+Our model, the cyanobacteria.  
+Tiny, discreet organisms,  
+yet capable of transforming an entire planet.  
+If we can achieve even **1%** of their impact,  
 then we will already be on the right path.
 
-We are not a party.
-
-We are not a corporation.
-
-We are a **movement of ideas**,
-
-a call for symbiosis,
-
-a reminder that humanity can still become part of the living world once more,
-
+We are not a party.  
+We are not a corporation.  
+We are a **movement of ideas**,  
+a call for symbiosis,  
+a reminder that humanity can still become part of the living world once more,  
 rather than a parasite sawing off the branch it sits on.
 
-The Lichen‑Collectives is not here to overthrow the world.
-
-We are here to **regenerate it**.
-
-To rekindle what still sleeps within our consciousness.
-
-To remind us that the planet knows how to repair itself —
-
+The Lichen‑Collectives is not here to overthrow the world.  
+We are here to **regenerate it**.  
+To rekindle what still sleeps within our consciousness.  
+To remind us that the planet knows how to repair itself —  
 if we give it the chance.
 
-And if you are reading these lines,
-
-it is because somewhere within you,
-
-you already know that change is possible.
-
-It begins with an idea.
-
-Just one.
-
-Then another.
-
-Then another still.
-
+And if you are reading these lines,  
+it is because somewhere within you,  
+you already know that change is possible.  
+It begins with an idea.  
+Just one.  
+Then another.  
+Then another still.  
 Like spores carried by the wind.
 
-Join us.
+**Join us.  
+Not to follow us.  
+But to think with us.  
+To dream with us.  
+To act, in your own way, in your own corner of the world.**
 
-Not to follow us.
-
-But to think with us.
-
-To dream with us.
-
-To act, in your own way, in your own corner of the world.
-
-Because if lichen can change a planet,
-
-then we too, together,
-
+Because if lichen can change a planet,  
+then we too, together,  
 can change ours.
 
 # 🌿 **Lettre ouverte du Lichen‑Collectives**  
